@@ -1,0 +1,1 @@
+# Globalink-Power-Translator-Full-Version-Unlocked
